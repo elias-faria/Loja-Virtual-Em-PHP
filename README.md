@@ -14,7 +14,7 @@ In this vast sea of learning, there’s always more! Just so you know,
 In this wondrous journey, let’s together grow! ⚡ Fun fact: Did you know that cats can’t taste sweet?
 Just like coding puzzles can sometimes feel neat!
 So let’s share our quirks and our passions so grand,
-In this whimsical world, let’s take a stand!
+In this brave new world, let’s take a stand!
 
 <!---
 elias-faria/elias-faria is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
