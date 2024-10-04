@@ -8,7 +8,7 @@ Diving deep into data, there’s no looking back. 💞️ I’m looking to colla
 Let’s brainstorm together, make our ideas complete!
 Whether it’s coding or crafting a tale,
 In this grand adventure, we surely won’t fail. 📫 How to reach me? Just send me a line,
-On Twitter or Discord, I’ll be sure to shine!
+On X or Discord, I’ll be sure to shine!
 Let’s connect and create, share knowledge galore,
 In this vast sea of learning, there’s always more! Just so you know,
 In this wondrous journey, let’s together grow! ⚡ Fun fact: Did you know that cats can’t taste sweet?
