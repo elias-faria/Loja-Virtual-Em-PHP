@@ -10,7 +10,7 @@ Whether it’s coding or crafting a tale,
 In this grand adventure, we surely won’t fail. 📫 How to reach me? Just send me a line,
 On Twitter or Discord, I’ll be sure to shine!
 Let’s connect and create, share knowledge galore,
-In this vast sea of learning, there’s always more! 😄 Pronouns: He/They, just so you know,
+In this vast sea of learning, there’s always more! Just so you know,
 In this wondrous journey, let’s together grow! ⚡ Fun fact: Did you know that cats can’t taste sweet?
 Just like coding puzzles can sometimes feel neat!
 So let’s share our quirks and our passions so grand,
